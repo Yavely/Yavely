@@ -1,6 +1,6 @@
 Ola meu nome é valdilene Garcez
 - 👀 No momento estou trabalho com mentoria femenina
-- 🌱 Atualmente estou aprendemdo o vasto mumeo da TI
+- 🌱 Atualmente estou aprendendo o vasto mundo da TI.
 - 💞️ 
 - 📫 Hoto reach me ...
 
